@@ -13,9 +13,9 @@ Some recommendations of eating, drinking and coffee places for those travelling 
 ## Things to do-PQ
 - [Ryze: tramopline centre](https://goo.gl/maps/1rKE6mWkCj32)
 - [Odeon Quay: Cinema]()
-- [Glasgow Climbing Center(GCC): traditional wall climbing]
-- [The Climbind Academy(TCA): bouldering]
-- [Bellahouston Dry Ski Slope]
+- [Glasgow Climbing Center(GCC): traditional wall climbing](https://goo.gl/maps/d8pem3ZPPLk)
+- [The Climbind Academy(TCA): bouldering](https://goo.gl/maps/DZdPUzvLWJK2)
+- [Bellahouston Dry Ski Slope](https://goo.gl/maps/TSGcrQguBiw)
 - [Hollywood Bowl: bowling]
 
 # Around Central/ Queestreet
