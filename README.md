@@ -28,7 +28,7 @@ Efficient Places
 
 ## Food
 - [Paesano Pizza](https://goo.gl/maps/sB9V5cKXAex)
-- [Lazrod Syrian Street Food](https://goo.gl/maps/QHkxVEerf1y)
+- [Lazrod Syrian Street Food](https://goo.gl/maps/QHkxVEerf1y): Lovely kebabs.
 
 ## Drinking
 - Spoons: [Crystal Palace](https://goo.gl/maps/KHviwZtkYds)
