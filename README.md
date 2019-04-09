@@ -37,6 +37,7 @@ Efficient Places
 - [Thomson's Central](https://goo.gl/maps/7KboKNWmnt92)
 - [Laboratorio Espresso](https://goo.gl/maps/MWDhZu5DGCs)
 - [Gordon Street Coffee](https://goo.gl/maps/2txZPnaKzWz)
+- [Riverhill Coffee](https://goo.gl/maps/sTq8hVQv4W42)
 
 ## Things 
 - [Lighthouse](https://goo.gl/maps/uFLML4k6LBo): Free tower to view some Glasgow skyline.
