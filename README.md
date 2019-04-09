@@ -36,3 +36,4 @@ Efficient Places
 ## Coffee
 - [Thomson's Central](https://goo.gl/maps/7KboKNWmnt92)
 - [Laboratorio Espresso](https://goo.gl/maps/MWDhZu5DGCs)
+- [Gordon Street Coffee](https://goo.gl/maps/2txZPnaKzWz)
