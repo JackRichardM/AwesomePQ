@@ -14,12 +14,12 @@ Some recommendations of eating, drinking and coffee places for those travelling 
 - [The Steamie](https://goo.gl/maps/gp5sJ81osoE2)
 
 ## Things to do-PQ
-- [Ryze: tramopline centre](https://goo.gl/maps/1rKE6mWkCj32)
+- [Ryze](https://goo.gl/maps/1rKE6mWkCj32): Tramopline centre.
 - [Odeon Quay: Cinema](https://goo.gl/maps/jGRV4H2yBuF2)
-- [Glasgow Climbing Center(GCC): traditional wall climbing](https://goo.gl/maps/d8pem3ZPPLk)
-- [The Climbind Academy(TCA): bouldering](https://goo.gl/maps/DZdPUzvLWJK2)
+- [Glasgow Climbing Center(GCC)](https://goo.gl/maps/d8pem3ZPPLk): Traditional wall climbing.
+- [The Climbind Academy(TCA)](https://goo.gl/maps/DZdPUzvLWJK2): Bouldering.
 - [Bellahouston Dry Ski Slope](https://goo.gl/maps/TSGcrQguBiw)
-- [Hollywood Bowl: bowling](https://goo.gl/maps/VqN5LG8JvJm)
+- [Hollywood Bowl](https://goo.gl/maps/VqN5LG8JvJm): Bowling.
 
 # Around Central/ Queestreet
 _"You're waiting for a train. A train that will take you far away. You know where you hope the train will take you, but you can't know for sure. Yet it doesn't matter. Now, tell me why?"_  -Cobb
@@ -31,7 +31,7 @@ Efficient Places
 - [Lazrod Syrian Street Food](https://goo.gl/maps/QHkxVEerf1y): Lovely kebabs.
 
 ## Drinking
-- Spoons: [Crystal Palace](https://goo.gl/maps/KHviwZtkYds)
+- [Crystal Palace](https://goo.gl/maps/KHviwZtkYds): Spoons.
 
 ## Coffee
 - [Thomson's Central](https://goo.gl/maps/7KboKNWmnt92)
