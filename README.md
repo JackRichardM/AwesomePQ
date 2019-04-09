@@ -6,6 +6,8 @@ Some recommendations of eating, drinking and coffee places for those travelling 
 ## Drinking-PQ
 - [The Park Bar](https://goo.gl/maps/mjk4nPHHyQH2): Great live music pub, might bump into a star or two...
 - [Old Toll Bar](https://goo.gl/maps/VyriwmVuNr62): Nice pub with a good selection of drinks.
+- [The Ben Nevis](https://goo.gl/maps/uLL3ZLbo4DH2): Great whisky pub.
+- [Dukes](https://goo.gl/maps/vNMgWLho4mz): Nae food, nae faff.
 
 ## Coffee-PQ
 - [Good Coffee Cartel](https://goo.gl/maps/MLdLMHgqR442)
